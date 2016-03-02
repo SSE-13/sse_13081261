@@ -7,8 +7,10 @@
  
 * [欢迎来到新疆来](http://lvyou.baidu.com/xinjiang/?from=zhixin)
 
-![](http://pic1.nipic.com/2008-11-19/2008111904038222_2.jpg)
+
 ![](http://hiphotos.baidu.com/lvpics/pic/item/d50735fae6cd7b89d0039aa50e2442a7d9330eac.jpg)
+![](http://pic1.nipic.com/2008-11-19/2008111904038222_2.jpg)
+
 
 ### 现在：
 *   现在就读于北京工业大学软件学院2013级数字媒体系，是一名来自祖国大西北新疆的维吾尔族小火，由于语言不通，汉语水平不好，在学习生活中存在一定的困难，但希望能在老师的帮助和指导之下，自己更加努力，掌握更多的知识和技能。
